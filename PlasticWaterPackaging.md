@@ -1,0 +1,3 @@
+Plastic Water Packaging
+=============
+In Southeast Asian countries, including Vietnam, by the end of the year, rampaging storms usually cause a lot of damage. One of those damages seriously affect people's assets is the metal roof were blown away. To prevent this, people often use sandbags to hold back the metal roof. However, carryingsandbags to the roof was not easy;moreover, after the rainy season the sand bag can be splited away, sand from these bags follow the water flow into the drain pipes and clog it. Our Plastic water packaging is easy to bring to the roof, supplying water from the water tank on the roof to create weight. It can be used for many years and you do not have to worry about clogged pipes.
