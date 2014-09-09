@@ -1,0 +1,3 @@
+The Need Statement
+=============
+In Danang city, there are about 30 skyscrapers, and each skyscraper need to clean exterior glasses. To clean these classes, skyscraper manager often hire a lot of worker to clean by hand in dangerous condition. Some worker got accident in workplace, fortunately, no one died up to now. However, it is better if robots do the job instead of worker. These robots could work in high and dangerous place without helping of human.
